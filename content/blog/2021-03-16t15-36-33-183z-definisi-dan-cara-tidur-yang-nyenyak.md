@@ -3,7 +3,7 @@ createdAt: 2021-03-16T15:36:33.183Z
 title: Definisi dan Cara Tidur yang Nyenyak
 description: Definisi dan cara tidur yang nyenyak
 ---
-Mimpi itu menjadi istilah yang sering kita dengar, kita bahkan berkata setiap hari. Misalnya, "tadi malam, aku tidak bisa tidur nyenyak karena aku khawatir tentang presentasi hari ini" atau [ayat alkitab untuk tidur malam](https://www.yukristen.com/2020/10/ayat-alkitab-untuk-tidur-malam.html) "Aku sangat mengantuk dan aku ingin tidur atau" Sepertinya aku harus minum secangkir kopi sebelum melanjutkan pekerjaan. "Tidurlah , Tidur dan tidur, semua orang pasti membicarakannya. Jadi, apa yang tidak bisa diketahui? Dan bagaimana maksudmu mimpi yang baik?
+Mimpi itu menjadi istilah yang sering kita dengar, kita bahkan berkata setiap hari. Misalnya, "tadi malam, aku tidak bisa tidur nyenyak karena aku khawatir tentang presentasi hari ini" atau [ayat alkitab untuk tidur malam](https://www.yukristen.com/2020/10/ayat-alkitab-untuk-tidur-malam.html) "Aku sangat ingin mengantuk dan aku ingin tidur atau" Sepertinya aku harus minum secangkir kopi sebelum melanjutkan pekerjaan. "Tidurlah , Tidur dan tidur, semua orang pasti membicarakannya. Jadi, apa yang tidak bisa diketahui? Dan bagaimana maksudmu mimpi yang baik?
 
 Arti tidur adalah perilaku fisiologis yang umumnya dilakukan oleh semua makhluk hidup, baik di semua spesies hewan maupun pada manusia. Bagaimana definisi biasanya tidur sesuai dengan para ahli? Banyak ahli sepakat bahwa tidur adalah situasi di mana kesadaran rangsangan lingkungan berkurang. Perlu diingat bahwa tidur tidak sama dengan koma, hibernasi, bahkan kematian. Mengapa demikian? Ini karena kondisi tidur memungkinkan orang dengan cepat kembali mengetahui tiga keadaan lainnya.
 
