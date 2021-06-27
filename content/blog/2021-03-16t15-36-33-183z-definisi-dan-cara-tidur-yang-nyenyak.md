@@ -1,0 +1,20 @@
+---
+createdAt: 2021-03-16T15:36:33.183Z
+title: Definisi dan Cara Tidur yang Nyenyak
+description: Definisi dan cara tidur yang nyenyak
+---
+Mimpi itu menjadi istilah yang sering kita dengar, kita bahkan berkata setiap hari. Misalnya, "tadi malam, aku tidak bisa tidur nyenyak karena aku khawatir tentang presentasi hari ini" atau [ayat alkitab untuk tidur malam](https://www.yukristen.com/2020/10/ayat-alkitab-untuk-tidur-malam.html) "Aku sangat mengantuk dan aku ingin tidur atau" Sepertinya aku harus minum secangkir kopi sebelum melanjutkan pekerjaan. "Tidurlah , Tidur dan tidur, semua orang pasti membicarakannya. Jadi, apa yang tidak bisa diketahui? Dan bagaimana maksudmu mimpi yang baik?
+
+Arti tidur adalah perilaku fisiologis yang umumnya dilakukan oleh semua makhluk hidup, baik di semua spesies hewan maupun pada manusia. Bagaimana definisi biasanya tidur sesuai dengan para ahli? Banyak ahli sepakat bahwa tidur adalah situasi di mana kesadaran rangsangan lingkungan berkurang. Perlu diingat bahwa tidur tidak sama dengan koma, hibernasi, bahkan kematian. Mengapa demikian? Ini karena kondisi tidur memungkinkan orang dengan cepat kembali mengetahui tiga keadaan lainnya.
+
+Apa yang terjadi dengan pemahaman tentang mimpi yang baik? Mimpi yang baik adalah suatu kondisi di mana individu mematuhi kualitas dan jumlah tidur itu sendiri. Misalnya, orang dewasa direkomendasikan untuk tidur selama tujuh hingga delapan jam sehari.
+
+Jika orang dewasa telah memenuhi jumlah tidur yang dibutuhkan dan dalam tujuh hingga delapan jam sehari yang benar-benar tidur nyenyak, maka individu yang dipertanyakan terasa baik dan kualitas mimpi.
+
+Ada beberapa langkah yang harus kita lamar untuk tidur nyenyak, bahkan lebih baik daripada tidur sebelumnya. Pertama-tama, kita perlu menetapkan sedikit waktu bagi tubuh kita untuk menjadi lebih santai. Cobalah untuk menenangkan setidaknya satu jam sebelum tidur. Jika sebelum kami bekerja, cobalah menyimpan file dan pertama-tama matikan laptop atau komputer kami. Matikan televisi dan benda pencahayaan lainnya yang perlu kita pastikan sebelum tidur.
+
+Jika kolega pembaca merasa lapar atau haus, makan sandwich atau membuat teh panas sebelum tidur, itu tidak masalah! Selain itu ada beberapa orang di mana-mana sebelum tidur, selalu mandi dengan air hangat sehingga tubuh mereka menjadi lebih santai dan lebih tenang. Ada juga mereka yang membaca beberapa lembar membaca buku sebagai penyanyi tidur sehingga pikiran mereka menjadi lebih damai, juga dapat menulis atau memikirkan hal-hal positif yang telah terjadi dalam sehari. Intinya, lakukan hal-hal yang membuat kita bahagia, tenang, santai dan tenang sebelum tidur.
+
+Langkah kedua, kita perlu mematikan semua sumber cahaya dari kamar tidur. Kita tahu bahwa mungkin beberapa rekan saran karir suka tidur dengan lampu-lampu kamar kiri, kan? Namun, menurut penelitian yang dilakukan oleh American Journal of Epidemiology, ia mengatakan bahwa cahaya dapat mengurangi produksi hormon melatonin yang dapat mengganggu metabolisme tubuh kita. Studi lain juga menegaskan bahwa ketika sebuah ruangan menjadi gelap, tubuh manusia akan bekerja dengan baik saat istirahat. Ini karena tubuh manusia dirancang untuk merasa lelah ketika gelap dan bangun ketika cahaya mulai bersinar. Misalnya, sinar matahari yang mulai menyelinap ke tirai kamar kami. Dengan begitu, matikan lampu kamar Anda, ponsel, dan barang elektronik lainnya.
+
+Ketiga, perhatikan jam tidur yang baik. Artinya, Anda dapat mencapai tidur yang memenuhi syarat ketika kita tidak akan tidur juga di malam hari atau apa yang sering kita sebut istilah tetap terlambat. Langkah terakhir, pastikan tempat tidur atau kasur tempat tidur kami benar-benar bersih dan rapi. Ini sangat penting, kolega. Terutama jika kolega pembaca memiliki penyakit alergi tertentu, seperti asma. Wow, membersihkan kamar dan tempat tidur harus menjadi perhatian utama.
